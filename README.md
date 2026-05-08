@@ -1,1 +1,1 @@
-# https-github.com-dancunkamau53-iyf-s10-week-06-dancunkamau53-coder
+iyf-s10-week-06-dancunkamau53-coder
